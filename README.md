@@ -1,6 +1,6 @@
 # LubbaDubba3DS
 
-## Whatta hel is diz?
+## Whatta hel iz anywaz diz?
 
 Diz iz cfw coled lubbadubba3ds for yor swecht,3ds,netentendo ds enderned and pesestatin veta 64
 
