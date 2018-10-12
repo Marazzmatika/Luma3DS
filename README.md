@@ -1,4 +1,4 @@
-# LubbaDubba3DS
+# LubbaDubba3DS (someone please compile)
 
 ## Whatta hel iz anywaz diz?
 
