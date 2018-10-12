@@ -3,6 +3,8 @@
 ## Whatta hel iz anywaz diz?
 
 Diz iz cfw coled lubbadubba3ds for yor swecht,3ds,netentendo ds enderned and pesestatin veta 64
+ya can laod diz wiz menuthemehacksx alh99 bosttrap9,bs11
+but bset ez buud11zdrab 
 
 ## Compiling
 
